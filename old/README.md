@@ -1,0 +1,1 @@
+This is just a random folder for old challenges or math problems to keep me entertained between puzzles.
